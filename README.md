@@ -1,2 +1,2 @@
 # Yukhimenko_Lab1
-https://online.fliphtml5.com/zdyiy/sozq/
+звіт- https://online.fliphtml5.com/zdyiy/opnh/
